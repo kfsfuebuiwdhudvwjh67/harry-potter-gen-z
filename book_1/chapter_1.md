@@ -145,11 +145,11 @@ Prof McG wiped her eyes and got out her hand sanitizer. Dumbledore gave a great 
 
 "I’ve come to bring Harry to his aunt and uncle. They’re the only fam he has left now."
 
-"You don’t mean – you can’t mean these Karens?!" cried Prof McG, jumping to her feet and pointing at number four. "Dumbledore – you can’t. I have been watching them all day. These basic fools aren't in the Same WhatsApp group! And their spawn – I saw him kicking his mother all the way up the street screaming for sweets. Harry Potter come and live here?!"
+"You don’t mean – you can’t mean these Karens?!" cried Prof McG, jumping to her feet and pointing at number four. "Dumbledore – you can’t. I have been watching them all day. These basic fools aren't in the Same WhatsApp group! And their spawn – I saw him kicking his mother all the way up the street screaming and yapping for sweets. Harry Potter come and live here?!"
 
-"Cope. It’s the best place for him," said Dumbledore firmly. "His aunt and uncle will be able to explain everything to him when he’s older. I’ve written them a letter."
+"Cope. It’s the best place for him," said Dumbledore firmly. "His aunt and uncle will be able to explain everything to him when he’s older. I’ve written them a DM."
 
-"A _letter_?" repeated Prof McG faintly, sitting down on the wall. "Fr, Dumbledore, you think you can explain all this in a letter? These people will never understand him! He’ll be famous – legendary – I wouldn’t be shook if today was known as Harry Potter Day in the future – there will be books written about Harry – every child in our world will know his name!"
+"A _Dm_?" repeated Prof McG faintly, sitting down on the wall. "Fr, Dumbledore, you think you can explain all this in a DM? These people will never understand him! He’ll be a GOAT – VIP – I wouldn’t be shook if today was known as Harry Potter Day in the future – there will be books written about Harry – every kiddo in our world will know his name!"
 
 "Bet," said Dumbledore, looking super serious through his specs. "It would be enough to go to anyone's head. An influencer before he can walk and talk! Famous for something he won't even remember! Can't you see how much better off he'll be, growing up away from all that until he's ready to take it?"
 
@@ -157,25 +157,25 @@ Prof McG made fish faces like she was going to say something but thought better.
 
 "Hagrid's bringing him."
 
-"You think it big brain to trust Hagrid with something as important as this?"
+"You think it big brain to trust Hagrid with something as mayor key as this?"
 
 "I would trust Hagrid with my life," said Dumbledore.
 
 "His heart is G.O.A.T.," said Prof McG grudgingly, "but you can't pretend he's not an airhead. He does tend to - what was that?"
 
-A _vroom vroom_ sound broke the silence around them. It grew steadily louder as they looked up and down the street for some sign of a headlight; it swelled to a roar as they both looked up at the sky - a huge motorcycle fell out of the air and landed on the road in front of them.
+A _vroom vroom_ noise totally shattered the chill vibe. It got mad loud as they peeped up and down the street for a headlight; it blew up to a full-on roar as they glanced at the sky - a massive bike just dropped from the heavens and slammed onto the road right in front of them..
 
 If the motorcycle was huge, it was nothing compared to the beast of a man straddling it. He was almost twice as tall as a normal man and had some major BDE (big dick energy). His fluffy factor was a "Oh hell no" and so wild - long tangles of bushy black hair and beard hid most of his face, he had hands the size of hubcaps, and his feet in their leather boots were like baby dolphins. In his vast, muscular arms he was holding a bundle of blankets.
 
 "Hagrid," said Dumbledore, sounding relieved. "Finally. Where'd you get the ride?"
 
-"Borrowed it, Professor Dumbledore, sir," said the giant, gently disembarking from the bike. "Young Sirius Black lent it to me. I've got him, sir."
+"Borrowed it, Professor Dumbledore, sir," said the giant, gently disembarking from the bike. "Sirius Black hooked me up with it. I got him, no cap."
 
 "Any issues?"
 
-"Nope - house was almost destroyed, but I got him out all right before the Muggles started swarmin' around. He took a napper as we was flyin' over Bristol."
+""Nope - house was almost destroyed, but I snagged him before the basic folks started pullin' up. Dude caught some Z's while we cruised over Bristol."
 
-Dumbledore and Prof McG bent forward over the bundle of blankets. Inside, just visible, was the babin, sleepin. Under a tuft of jet-black hair over his forehead they could see a sus af cut, shaped like a bolt of lightning.
+Dumbledore and Prof McG bent forward over the bundle of blankets. Inside, just visible, was the babin, sleepin. Under a tuft of jet-black hair over his forehead they could see a sus and ugly af cut, shaped like a bolt of lightning.(no cap)
 
 "Is that where-?" whispered Prof McG.
 
@@ -183,11 +183,10 @@ Dumbledore and Prof McG bent forward over the bundle of blankets. Inside, just v
 
 "Cantcha fix it, Dumbledore?"
 
-"Yeah, but no. Scars come in handy. I have one on my knee that is totes a map of the London Underground. Well - gimme, Hagrid - let's get this over with."
+"Yeah, but nah. Scars are lowkey useful. I have one on my knee that is totes a map of the London Underground. Well - gimme, Hagrid - let's just yeet this and move on."
+Dumbledore took Harry in his arms and turned toward the Dursley's ugly af house.
 
-Dumbledore took Harry in his arms and turned toward the Dursley's house.
-
-"Could I - could I say bye to him, sir?" asked Hagrid. He bent his great, shaggy head over Harry and gave him what must have been a very scratchy, whiskery kiss. Then, suddenly, Hagrid let out a noise like a wounded pupper.
+"Could I - could I say bye to him, sir?" asked Hagrid. He leaned down with his big fluffy head and gave Harry this mega scratchy, beardy kiss. Then, out of nowhere, Hagrid let out a noise like a wounded pupper fr.
 
 "STFU" hissed Prof McG, "you'll wake the normies!"
 
@@ -207,4 +206,4 @@ Dumbledore walked off into the night. On the corner he stopped and took out the 
 
 "Gl, Harry," he murmured. He spun on his heel, swished his cloak, and vanished into the night.
 
-A breeze ruffled the neat hedges of Privet Drive, super basic even under the stars, the very last place you would expect astonishing things to happen. Harry Potter cuddled up inside his blankies, sleepin soundly. One smol hand closed on the letter beside him and he slept on, not knowing he was special, not knowing he was famous, not knowing he would be woken in a few hours' time by Mrs. Dursley's scream as she opened the front door to put out the milk bottles, nor that he would spend the next few weeks being prodded and pinched by his cousin Dudley... He couldn't know that at this very moment, peeps meeting in secret all over the county gettin lit and saying in hushed voices: "To Harry Potter - the boy who wasn't unalived."
+nA breeze ruffled the neat hedges of Privet Drive, super basic even under the stars, the very last place you would expect astonishing things to happen. Harry Potter cuddled up inside his blankies, sleepin soundly. One smol hand closed on the letter beside him and he slept on, not knowing he was special, not knowing he was famous, not knowing he would be woken in a few hours' time by Mrs. Dursley's scream as she opened the front door to put out the milk bottles, nor that he would spend the next few weeks being prodded and pinched by his cousin Dudley... He couldn't know that at this very moment, peeps meeting in secret all over the county gettin lit and saying in hushed voices: "To Harry Potter - the boy who wasn't unalived."
